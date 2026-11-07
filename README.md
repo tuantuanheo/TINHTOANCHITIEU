@@ -1,1 +1,1 @@
-# APP-T-NH-TO-N-CHI-TI-U-
+# tinh toan chi tieu
